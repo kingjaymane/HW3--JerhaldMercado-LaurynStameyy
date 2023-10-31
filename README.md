@@ -1,1 +1,1 @@
-# HW3--JerhaldMercado-LaurynStameyy
+# HW3--JerhaldMercado-LaurynStamey
